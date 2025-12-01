@@ -1,1 +1,1 @@
-# Amul-Dairy Amul is currently the largest fresh milk brand in Bengal with sales of more than 10 lakh litres of milk per day. Amul has a strong milk procurement network in 14 districts of Bengal with more than 1.2 lakh women milk producers associated with it.
+
